@@ -4,3 +4,5 @@ What home means to me is a place to rest after a long day out and the feeling of
 
 Link to the videoclip:
 https://drive.google.com/file/d/1LRmb6AYnwwYrk8InFUz9yUSFI_0RClxB/view?usp=sharing
+
+Credit to TimeTurk for the image: https://www.timeturk.com/4-gunluk-kisitlamanin-baslamasiyla-birlikte-istanbul-sokaklari-bos-kaldi/haber-1447005
